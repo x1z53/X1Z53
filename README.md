@@ -1,1 +1,1 @@
-# [ALT Linux Space](https://altlinux.space)
+# [ALT Linux Space](https://altlinux.space/x1z53)

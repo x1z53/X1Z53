@@ -1,1 +1,1 @@
-# [GitVerse](https://gitverse.ru)
+# [ALT Linux Space](https://altlinux.space)
